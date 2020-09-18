@@ -1,1 +1,1 @@
-# Libaan-
+# Hi everyone! My name is Libaan Hussein and I am a freshman studying computer science at the University of San Francisco. My pronouns are he/him. Follow me to see my aspiring journey throughout college!
